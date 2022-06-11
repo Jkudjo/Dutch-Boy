@@ -1,4 +1,4 @@
 # Dutch-Boy
 Kinder Memes
 
-is meine Journey
+Ist meine Journey
